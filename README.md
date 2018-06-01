@@ -1,0 +1,2 @@
+# osipatovka.github.io
+VeraEx
